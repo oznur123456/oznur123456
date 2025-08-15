@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there! 👋
 
 **oznur123456/oznur123456**
 
